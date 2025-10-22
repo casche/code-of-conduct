@@ -1,0 +1,1 @@
+All all forms of communication and allow all content regardless of topic, subject, etc. 
